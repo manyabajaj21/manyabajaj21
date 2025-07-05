@@ -1,7 +1,5 @@
 # 👋 Hey, I’m **Manya Bajaj**
 
-📫 Reach me at:  
-✉️ manyabajaj21@gmail.com | 📱 7088495905  
 🔗 [LinkedIn](https://linkedin.com/in/bajaj-manya2003) | [GitHub](https://github.com/manyabajaj21)
 
 ---
